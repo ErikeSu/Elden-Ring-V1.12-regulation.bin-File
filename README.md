@@ -1,0 +1,1 @@
+# Elden-Ring-V1.12-regulation.bin-File
